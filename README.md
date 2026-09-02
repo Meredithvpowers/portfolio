@@ -1,2 +1,2 @@
 # portfolio
-Professional portfolio homepage
+Finance Student at the University of Utah
